@@ -2,7 +2,7 @@
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/0aae8967-6ad8-43d9-a94f-3889c23708f8" />⠀ ⠀ ⠀ ⠀ ⠀іߴm⠀ ⠀ ⠀ ⠀ ⠀ᥒ᥆𝗍⠀ ⠀ ⠀ ⠀ ⠀ᥲ⠀ ⠀ ⠀ ⠀ ⠀Dᥱrᥱ⠀ ⠀ ⠀ ⠀ ⠀!
 ⠀ ⠀ ⠀ ⠀ ⠀[⍴rᥒs.⍴ᥲgᥱ](https://en.pronouns.page/@Nat.su) 𓈒 [ᥲ𝗍ᥲ.ᑲ᥆᥆k](https://kribbons.atabook.org) 𓈒 
 ######
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ <img width="500" height="360" alt="Image" src="https://github.com/user-attachments/assets/25c261e2-8971-43a7-a9ff-89c0dbb0cb45" />
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ <img width="570" height="500" alt="Image" src="https://github.com/user-attachments/assets/197b0cfc-6fdd-4325-8126-ad03c339db78" />
 ######
 ![Image](https://github.com/user-attachments/assets/0166543d-42fc-4210-aa30-9844359a3184)⠀ ⠀ ⠀ ⠀ ⠀A ⠀ ⠀ ⠀ ⠀ Tsᥙᥒ⠀ ⠀ ⠀ ⠀ ⠀Tsᥙᥒძᥱrᥱ⠀ ⠀ ⠀ ⠀ ⠀!
 ##
