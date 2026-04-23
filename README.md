@@ -1,9 +1,9 @@
-<img width="2000" height="124" alt="Image" src="https://github.com/user-attachments/assets/8fac7879-ce96-4ffc-92f6-cbed0c31495f" />
+<img width="2000" height="124" alt="Image" src="https://github.com/user-attachments/assets/9dfd57b1-c02d-43d6-8400-a3c85968cec3" />
 
 ####
  ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀𓈒 [Տ𝗍rᥲᥕ⍴ᥲgᥱ](https://holical.straw.page/) 𓈒 [⍴rᥒs.⍴ᥲgᥱ](https://en.pronouns.page/@Tumorr) 𓈒 [ᥲ𝗍ᥲ.ᑲ᥆᥆k](https://holical.atabook.org) 𓈒
 ####
-⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀  ⠀⠀⠀ ⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&redirect=true)
+⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀  ⠀⠀⠀⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&redirect=true)
 
 ####
-<img width="2000" height="124" alt="Image" src="https://github.com/user-attachments/assets/5b3f3681-55bf-440d-9575-aef7de93f724" />
+<img width="2000" height="124" alt="Image" src="https://github.com/user-attachments/assets/5ed4ec61-3778-42b8-be64-267bc91dc572" />
