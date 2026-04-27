@@ -3,8 +3,6 @@
 ####
    <div align="center">
 
-<img width="100" height="17" alt="Image" src="https://github.com/user-attachments/assets/d15b966b-f743-4468-8450-d6f7d32e15dc" />
-
 ####
 [Strawp](https://holical.straw.page/) $\color{#867271}{𓏵}$ [prnsPage](https://en.pronouns.page/@Tumorr) $\color{#867271}{𓏵}$ [Ata](https://pastrydishes.atabook.org)
 ####      
