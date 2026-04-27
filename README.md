@@ -2,12 +2,15 @@
 
 ####
    <div align="center">
-      
-[Տ𝗍rᥲᥕ⍴ᥲgᥱ](https://holical.straw.page/) $\color{#B5BAA5}{𓏵}$ [⍴rᥒs.⍴ᥲgᥱ](https://en.pronouns.page/@Tumorr) $\color{#B5BAA5}{𓏵}$ [ᥲ𝗍ᥲ.ᑲ᥆᥆k](https://pastrydishes.atabook.org) 𓈒
+
+<img width="100" height="17" alt="Image" src="https://github.com/user-attachments/assets/d15b966b-f743-4468-8450-d6f7d32e15dc" />
+
+####
+[Strawp](https://holical.straw.page/) $\color{#867271}{𓏵}$ [prnsPage](https://en.pronouns.page/@Tumorr) $\color{#867271}{𓏵}$ [Ata](https://pastrydishes.atabook.org)
 ####      
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&cover_image=true&theme=novatorem&show_offline=false&background_color=b4b5a0&interchange=false&profanity=false&bar_color=b4b5a0&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&redirect=true)
 ####
-[➴](https://www.youtube.com/watch?v=zTFD7fQORrI) $\color{#B5BAA5}{𓏵}$ [✃](https://www.youtube.com/watch?v=QJ7jJvYXOcY)
+[➴](https://www.youtube.com/watch?v=zTFD7fQORrI) $\color{#867271}{𓏵}$ [✃](https://www.youtube.com/watch?v=QJ7jJvYXOcY)
 
 ####
 <img width="2000" height="124" alt="Image" src="https://github.com/user-attachments/assets/5ed4ec61-3778-42b8-be64-267bc91dc572" />
